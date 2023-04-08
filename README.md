@@ -1,1 +1,2 @@
-[image](https://user-images.githubusercontent.com/79838394/230715496-f167a568-c953-4df8-a4c3-a30aa09d6ce2.png)
+![Captură](https://user-images.githubusercontent.com/79838394/230715537-2b4e1c4c-bae3-417b-9c78-5aa54d41682a.PNG)
+![Captură](https://user-images.githubusercontent.com/79838394/230715552-8029eb7c-67f2-408f-84d8-eab7ff56ffa2.PNG)
